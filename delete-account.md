@@ -8,7 +8,7 @@
 
 To request deletion of your account and all associated personal data, please email us at:
 
-**privacy@technera.co.uk**
+**official@techeneraltd.com**
 
 Include the following in your email:
 
@@ -35,6 +35,6 @@ This data cannot be recovered once deleted.
 ## Contact
 
 TECHNERA LIMITED
-Email: privacy@technera.co.uk
+Email: official@techeneraltd.com
 
 *Last updated: June 2025*
